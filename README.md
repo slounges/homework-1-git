@@ -2,8 +2,8 @@
 <html>
 	
 
-<h1>Hello,</h1>
-<p style = "color: red;">Welcome to Pristine and Shannon's Repository!</p>
+<h1>Hello there,</h1>
+<p>Welcome to Pristine and Shannon's Repository!</p>
 
 
 </html>
