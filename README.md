@@ -2,13 +2,8 @@
 <html>
 	
 
-<h1>Hello, <br> 
-Welcome to Pristine and Shannon's respiratory!
-
-
-
-</h1>
-
+<h1>Hello,</h1>
+<p style = "color: red;">Welcome to Pristine and Shannon's Repository!</p>
 
 
 </html>
