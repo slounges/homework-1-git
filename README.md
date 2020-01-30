@@ -1,8 +1,10 @@
+
 # Get to Know Pristine
 
 
 ## Life
 Pristine Joy Dagandan was born on June 22, 1999 in Cagayan de Oro, Philippines. Her father, Ruben Dagandan, was a Chemical Engineer but now works as an assembler for carseat adjusters at Brose Canada since 2007. Her mother,Jocelyn (nee Usares) was a registered nurse in the Philippines, she's currently working as a practical nurse at McGarrel Place Nursing Home and is pursuing to get her license to be a registered nurse. Pristine is of Spanish heritage as the Philippines was once colonized by Spaniards for more than 300 years. She has a younger sister named Crystal Eliana Dagandan, who enjoys baking bread from scratch and is currently in her freshmen year of high school. Pristine spent her early decades in the city she was born in with her closest cousins before coming to Canada in 2010 at the age of 11 years old. She has lived in London, Ontario ever since. 
+
 
 ## Career Ventures
 Ever since a young child, Pristine enjoyed story telling. She was never talkative with others unless she was telling a story whether it was fiction or something that happened that day. She enjoyed writing them down and thought that maybe she could be an amazing writer. But because she only kept those written stories to herself, no one really supported her of that dream until it just stayed forgotten in the past.
@@ -16,3 +18,4 @@ Pristine went to elementary school at Blessed Sacrament. Despite her social anxi
 
 ## Activism
 Pristine is a mental health and LGBTQ+ advocate. At a young age she had always felt different from everyone, which lead to her getting bullied more often. She came out as bisexual to her friends but not to her family considering their strict religious views, but she does not think it's a big deal and necessary for her to identify herself. Two of her cousins, one who is very close to her, came out as homosexual. That's where she got her courage and wants to stand for others as well. She was not active in having a relationship before because of her more important priorities, but in 2019 she started dating her first boyfriend, Nicholas Keeley, whom she met from Architectural Technology. They enjoy watching movies and making food, lots of food. Pristine luckily also found a partner that enjoys doing puzzles with her and he's been really patient. Earlier that year, Pristine finally reached out for counselling and psychiatry. She's been diagnosed with Borderline Personality Disorder (BPD), as well as severe anxiety and depressive disorder. 
+
